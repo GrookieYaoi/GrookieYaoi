@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=your-github-username&color=69301b)
+
 ##   　　 　　　　　 ︵︵︵︵︵︵
 
 ###      　　 　· · ─────── ·𖥸· ─────── · ·
