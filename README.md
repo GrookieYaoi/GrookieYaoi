@@ -15,13 +15,26 @@
 
 ---------
 
+  　　 　　　　　 
+  　　 　　  　　 　　　　　 　　　   <br>
+<br>
+  <table>
+    <tr>
+      <td>
+        <br>
+$\color{#c4582b}{\textsf{info hai! my name is vella this acc is just mostly for}}$<br>
+$\color{#c4582b}{\textsf{info ponytown im really that less-Active though}}$<br>
+$\color{#c4582b}{\textsf{i don't really mind cuddles-hugs I'm ok with it! }}$<br>
+$\color{#c4582b}{\textsf{i mostly be offtab playing roblox,etc whisper is mostly prefer}}$<br>
+$\color{#c4582b}{\textsf{  　　she 　.　they　　　  }}$<br>
+$\color{#c4582b}{\textsf{ this is an alt account ok! I don't really update there THOUGH}}$<br>
+$\color{#c4582b}{\textsf{text text text text }}$<br>
+$\color{#c4582b}{\textsf{do not COPY my skins. inspo is allowed but ask permission FIRST.}}$<br>
+$\color{#c4582b}{\textsf{ I'm just mostly again doom scrolling at yt- tiktok so yeah..that }}$<br>
+        <br>
+          <br>
+      </td>
+    </tr>
+  </table>
 
-  　　 　　  　　 　　　　　 　　　     <details>
-
-   　　 　　　　　  　　<summary>   ╭　　 ∘　✿　∘　　܀　 </summary>
-
-  text text  text text
-  　　 　　　　　   text text text text  
-    　　 　　text text　　　 
-text text textt
-  　　 　　　　　   　　 　　　　　   　 </details>
+  -------------
