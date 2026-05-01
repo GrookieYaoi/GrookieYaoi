@@ -1,21 +1,24 @@
 
-##   　　 　　　　　 ︵︵︵︵︵︵
+  　　 　　　　　 
+<div align="center">
 
-###      　　 　· · ─────── ·𖥸· ─────── · ·
+###   · · ─────── ·𖥸· ─────── · ·
+<div align="center">
 
-  　　 　　　　　  　　 　　　　　  $\color{#bd7155}{\textsf{READ.ME.COOKIE}}$  　　   　　 　　　　　 　
-
-  　　 　　　　　 $\color{#753b20}{\textsf{aCo𝙤k𝒊e}}$   　ᜊ　 $\color{#965e44}{\textsf{V𝙚l𝒍a}}$
+  $\color{#bd7155}{\textsf{READ.ME.COOKIE}}$
+      
+ $\color{#753b20}{\textsf{aCo𝙤k𝒊e}}$   　ᜊ　 $\color{#965e44}{\textsf{V𝙚l𝒍a}}$
  
-  　　 　　　　　 $\color{#b05328}{\textsf{minor}}$   　　　　 $\color{#8c4c35}{\textsf{she/they}}$
+$\color{#b05328}{\textsf{minor}}$   　　　　 $\color{#8c4c35}{\textsf{she/they}}$
                     
-  　　 　　　　 $\color{#b05328}{\textsf{━━━━━━。゜✿ฺ✿ฺ゜。━━━━━━}}$
+$\color{#b05328}{\textsf{━━━━━━。゜✿ฺ✿ฺ゜。━━━━━━}}$
 
 
 
 ---------
-
-  　　 　　　　　 
+<div align="center">
+<img width="384" height="384" alt="body (1)" src="https://github.com/user-attachments/assets/c3f1b948-29ac-4032-adc1-8292bbade17e" />
+<div align="center">  　　 　　　　　 
   　　 　　  　　 　　　　　 　　　   <br>
 <br>
   <table>
