@@ -5,19 +5,19 @@
 ###   · · ─────── ·𖥸· ─────── · ·
 <div align="center">
 
-  $\color{#bd7155}{\textsf{READ.ME.COOKIE}}$
+  $\color{#718582}{\textsf{READ.ME.𝗺𝗰𝘆𝗧𝗦}}$
       
- $\color{#753b20}{\textsf{aCo𝙤k𝒊e}}$   　ᜊ　 $\color{#965e44}{\textsf{V𝙚l𝒍a}}$
+ $\color{#718582}{\textsf{J𝐚𝙯𝘻𝘆}}$   　ᜊ　 $\color{#718582}{\textsf{V𝙚l𝒍a}}$
  
-$\color{#b05328}{\textsf{minor}}$   　　　　 $\color{#8c4c35}{\textsf{she/they}}$
+$\color{#718582}{\textsf{minor}}$   　　　　 $\color{#718582}{\textsf{she/they}}$
                     
-$\color{#b05328}{\textsf{━━━━━━。゜✿ฺ✿ฺ゜。━━━━━━}}$
+$\color{#718582}{\textsf{━━━━━━。゜✿ฺ✿ฺ゜。━━━━━━}}$
 
 
 
 ---------
 <div align="center">
-<img width="384" height="384" alt="body (1)" src="https://github.com/user-attachments/assets/c3f1b948-29ac-4032-adc1-8292bbade17e" />
+<img width="350" height="499" alt="ReinaDrop" src="https://github.com/user-attachments/assets/34d66bfd-7752-4cfb-af28-a035104647c1" />
 <div align="center">  　　 　　　　　 
   　　 　　  　　 　　　　　 　　　   <br>
 <br>
@@ -25,15 +25,13 @@ $\color{#b05328}{\textsf{━━━━━━。゜✿ฺ✿ฺ゜。━━━━�
     <tr>
       <td>
         <br>
-$\color{#c4582b}{\textsf{info hai! my name is vella this acc is just mostly for}}$<br>
-$\color{#c4582b}{\textsf{info ponytown im really that less-Active though}}$<br>
-$\color{#c4582b}{\textsf{i don't really mind cuddles-hugs I'm ok with it! }}$<br>
-$\color{#c4582b}{\textsf{i mostly be offtab playing roblox,etc whisper is mostly prefer}}$<br>
-$\color{#c4582b}{\textsf{  　　she 　.　they　　　  }}$<br>
-$\color{#c4582b}{\textsf{ this is an alt account ok! I don't really update there THOUGH}}$<br>
-$\color{#c4582b}{\textsf{text text text text }}$<br>
-$\color{#c4582b}{\textsf{do not COPY my skins. inspo is allowed but ask permission FIRST.}}$<br>
-$\color{#c4582b}{\textsf{ I'm just mostly again doom scrolling at yt- tiktok so yeah..that }}$<br>
+
+$\color{#cbd4cd}{\textsf{ name — NICKNAMES }}$<br>
+$\color{#718582}{\textsf{ WIP WIP }}$<br>
+$\color{#718582}{\textsf{  　　text text　  }}$<br>
+$\color{#718582}{\textsf{ info — text }}$<br>
+$\color{#718582}{\textsf{text text text text }}$<br>
+$\color{#718582}{\textsf{text .}}$<br>
         <br>
           <br>
       </td>
